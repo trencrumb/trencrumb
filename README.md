@@ -1,9 +1,15 @@
 ### Hi there 👋
 
+Kernewek 🏴‍☠️
+
 Para Liesdyskybleth artydh hyworth Kernow
+
 Dhyski son dielvennans ha towlennans @ RCA
 
+English 🇬🇧
+
 Multi-disciplinary artist from Cornwall
+
 Teach spatial audio and programming @ RCA
 <!--
 **trencrumb/trencrumb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

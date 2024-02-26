@@ -1,10 +1,14 @@
 ### Hi there 👋
 
+---
+
 Kernewek 🏴‍☠️
 
 Para Liesdyskybleth artydh hyworth Kernow
 
 Dhyski son dielvennans ha towlennans @ RCA
+
+---
 
 English 🇬🇧
 
